@@ -1,1 +1,1 @@
-Feito por João Guilherme
+Feito por João Guilherme S. Couto
